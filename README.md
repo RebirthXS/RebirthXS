@@ -31,5 +31,5 @@
 <div align="center">
 <h2>Advertisement</h2>
 
-<a href="https://rebirthstress.net?truv3st"><img src="https://i.ibb.co/fGYVgDv1/final.gif" alt="final" border="0"></a><br /><a target='_blank' href='[https://pl.imgbb.com/](https://rebirthstress.net?truv3st)'><br />
+<a href="https://rebirthstress.net?rb"><img src="https://i.ibb.co/fGYVgDv1/final.gif" alt="final" border="0"></a><br /><a target='_blank' href='[https://pl.imgbb.com/](https://rebirthstress.net?rb)'><br />
 
